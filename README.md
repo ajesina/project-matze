@@ -14,3 +14,5 @@ it's a boy, mrs. walker...
 t
 
 skills
+
+"musst du nicht nach süden?"
