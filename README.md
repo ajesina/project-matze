@@ -18,3 +18,5 @@ skills
 "musst du nicht nach süden?"
 
 der masskrug bei der einweihungsfeier...
+
+strohhut im rentner-mercedes :)
