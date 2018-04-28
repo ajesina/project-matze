@@ -20,3 +20,5 @@ skills
 der masskrug bei der einweihungsfeier...
 
 strohhut im rentner-mercedes :)
+
+gratulation und nur das beste für alle weiteren commits!
